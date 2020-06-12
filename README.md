@@ -1,1 +1,1 @@
-﻿https://jangarit.github.io/COD/index.html
+﻿https://jangarit.github.io/CuerpoGamer/index.html
